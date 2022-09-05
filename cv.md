@@ -7,7 +7,7 @@
 * [**Email**](rykedfel@gmail.com)
 * **Discord:** Evgeniy Romanovskiy(@hugeMordor)
 * [**GitHub**](https://github.com/hugeMordor)
-* [**VK**](https://vk.com/e.romanovsky2000)
+* [**vk.com**](https://vk.com/e.romanovsky2000)
 -----------------------------------------------
 
 ## About Me
