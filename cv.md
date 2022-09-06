@@ -4,7 +4,7 @@
 ## Contact Info
 * **Phone:** +375 29 265 54 73
 * **Location:** Grodno, Belarus
-* **Emai:** rykedfel@gmail.com
+* **Email:** rykedfel@gmail.com
 * **Discord:** Evgeniy Romanovskiy(@hugeMordor)
 * [**GitHub**](https://github.com/hugeMordor)
 * [**VK**](https://vk.com/e.romanovsky2000)
