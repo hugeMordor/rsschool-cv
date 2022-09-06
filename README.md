@@ -1,1 +1,1 @@
-https://hugeMordor.github.io/rsschool-cv/cv
+https://hugeMordor.github.io/rsschool-cv/
